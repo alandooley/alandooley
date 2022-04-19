@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @alandooley
+- 👀 I'm the Head of Digital Services for Limerick City & County Council
+- 📫 How to reach me ... alan.dooley@limerick.ie
